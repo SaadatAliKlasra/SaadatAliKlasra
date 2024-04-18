@@ -6,7 +6,7 @@
 
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other content creators
-- 🥅 2022 Goals: Polish my frontend skill
+- 🥅 2024 Goals: Plish my Next14 knowledge
 - ⚡ Fun fact: I love to travel
 
 ### Connect with me:
